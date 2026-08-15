@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hii 👋
 
 I'm Angelica, and I'm an aspiring software developer 🙂
 
